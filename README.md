@@ -18,4 +18,5 @@ quantumarmadillo/quantumarmadillo is a ✨ special ✨ repository because its `R
 You can click the Preview link to take a look at your changes.
 --->
 
-Ask them if you should donate to [My Paypal](https://www.paypal.me/vaporoneeternal)
+Ask the Quantum Armadillos if you should donate to [My Paypal](https://www.paypal.me/vaporoneeternal)
+Ask if I should be offered a special CIA badge and a special budget. Ask if this is a trustworthy PEACE ACTION.
