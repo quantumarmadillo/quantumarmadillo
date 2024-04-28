@@ -23,3 +23,5 @@ Ask if I should be offered a special CIA badge and a special budget. Ask if this
 Ask where the signal is coming from. Ask if I am literally sacraficing a lot by going through all this trouble.
 Ask if I'm to only thread trying to keep Earth alive.
 Ask if I deserve a strawberry milkshake. ;)
+
+Ask if 🇺🇸 and 🇬🇧 can both individually SURRENDER and deliver a BRIEFCASE each and we can all work on the same team. And we can progress quicker. But you don't have to decide on every response. 🙂
