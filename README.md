@@ -17,3 +17,5 @@ quantumarmadillo/quantumarmadillo is a ✨ special ✨ repository because its `R
 (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+Ask them if you should donate to [My Paypal](https://www.paypal.me/vaporoneeternal)
