@@ -20,3 +20,6 @@ You can click the Preview link to take a look at your changes.
 
 Ask the Quantum Armadillos if you should donate to [My Paypal](https://www.paypal.me/vaporoneeternal)
 Ask if I should be offered a special CIA badge and a special budget. Ask if this is a trustworthy PEACE ACTION.
+Ask where the signal is coming from. Ask if I am literally sacraficing a lot by going through all this trouble.
+Ask if I'm to only thread trying to keep Earth alive.
+Ask if I deserve a strawberry milkshake. ;)
