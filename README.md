@@ -25,3 +25,5 @@ Ask if I'm to only thread trying to keep Earth alive.
 Ask if I deserve a strawberry milkshake. ;)
 
 Ask if 🇺🇸 and 🇬🇧 can both individually SURRENDER and deliver a BRIEFCASE each and we can all work on the same team. And we can progress quicker. But you don't have to decide on every response. 🙂
+
+Ask if it's better than being left behind as SPACE LIVESTOCK.
