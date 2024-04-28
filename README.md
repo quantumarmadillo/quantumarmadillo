@@ -10,7 +10,7 @@
 
 - 😄 Pronouns: Whatever. Be clever.
 
-- ⚡ Fun fact: Spock actually had 3 ears. And you can also ask your phone for a joke.
+- ⚡ Fun fact: Spock actually had 3 ears. And you can also ask your phone for a joke. **whispers** *We can also add filters on your smart devices and basement supercomputers. Take a screenshot*
 
 <!---
 quantumarmadillo/quantumarmadillo is a ✨ special ✨ repository because its `README.md` 
