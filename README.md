@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Vapor One Eternal. I use Quantum Armadillo based on the Olympus WS-82x series.
+- 👋 Hi, I’m Vapor One Eternal. I use Quantum Armadillo based on the Olympus WS-822, personally.
   
 - 👀 I like looking at different things to examine patterns. Things like Chinese characters, source code, time cycles, etc.
 
