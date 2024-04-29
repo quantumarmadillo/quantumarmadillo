@@ -5,6 +5,7 @@ Things you can talk about
 - Anything not diabolical
 - Tech advice
 - Screenshots on your smart device
+- Screenshots on your basement supercomputer
 - Encryption
 - Medicine
 
