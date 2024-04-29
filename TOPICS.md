@@ -4,6 +4,7 @@ TOPICS TO DISCUSS
 Things you can talk about
 - Anything not diabolical
 - Are they telepathic?
+- Can they 1?
 - Tech advice
 - Screenshots on your smart device
 - Screenshots on your basement supercomputer
