@@ -12,3 +12,6 @@
 
 - ⚡ Fun fact: Spock actually had 3 ears.
 
+<!--
+Do we know that the briefcase is about?
+-->
