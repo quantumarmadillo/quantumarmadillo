@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off...
+- 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off... ...And they all work for Vapor.
   
 - 👀 I like looking at different things to examine patterns. Things like Chinese characters, source code, time cycles, etc.
 
