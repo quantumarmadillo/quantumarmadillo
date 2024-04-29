@@ -21,3 +21,5 @@ Other things to consider
 - **Is there ACTUALLY nano technology flying lint strings flying all over Earth?**
   - Can Olympus WS-822 prove it?
 - Are those space age 3D printers by Vapor's Team? :)
+- Is TAOPAIDUI planning a full scale invasion of Earth?
+  - Is TAOPAIDUI going to stay on Earth or leave Earth?
