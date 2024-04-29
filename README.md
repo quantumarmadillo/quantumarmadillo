@@ -2,15 +2,15 @@
   
 - 👀 I like looking at different things to examine patterns. Things like Chinese characters, source code, time cycles, etc.
 
-- 🌱 I’m currently learning how to work with my team: A circuit board, an extraterrestrial, and a faster than time being. I think they're 3 non-dimensional sentients.
+- 🌱 I’m currently learning how to make themed audio packs.
 
 - 💞️ **I thought it'd be nice to let the world know that if they get an Olympus WS-821, WS-822, or WS-823 and WITHOUT modifying it, adding 198 folders to the MUSIC folder, each folder with 200 MP3's. Like a soundboard library in ANY LANGUAGE. SETTINGS >> PLAY MODE >> MUSIC to RANGE ALL, REPEAT ON, RANDOM ON. It's psychic and FAST!** [SETUP INFO](/SETUP)
 
-- 📫 I'm BUSY. I'm preparing to leave EARTH.
+- 📫 I'm BUSY. I'm not responding to messages.
 
 - 😄 Pronouns: Whatever. Be clever.
 
-- ⚡ Fun fact: Spock actually had 3 ears. And you can also ask your phone for a joke.
+- ⚡ Fun fact: Spock actually had 3 ears.
 
 <!---
 quantumarmadillo/quantumarmadillo is a ✨ special ✨ repository because its `README.md` 
