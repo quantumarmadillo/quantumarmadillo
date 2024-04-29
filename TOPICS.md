@@ -20,4 +20,4 @@ Other things to consider
 - Is the NORTH POLE actually up and the SOUTH POLE actually down?
 - **Is there ACTUALLY nano technology flying lint strings flying all over Earth?**
   - Can Olympus WS-822 prove it?
-- Are those space age 3D printers by Vapor? :)
+- Are those space age 3D printers by Vapor's Team? :)
