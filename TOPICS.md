@@ -17,3 +17,5 @@ Other things to consider
 - Are there any hostile life near Earth in space?
 - Is the Chinese space community collaborating with hostile life from HIP 12342?
 - Does the IBM Z know about HIP 12342 being hostile?
+- Is the NORTH POLE actually up and the SOUTH POLE actually down?
+- **Is there ACTUALLY nano technology flying lint strings flying all over Earth?**
