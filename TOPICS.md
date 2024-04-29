@@ -14,3 +14,6 @@ Other things to consider
 - Is Vapor acquiring this universe in the encasement of a crystal pillar?
 - Should Vapor be king of Earth?
 - What happens if Vapor is not King?
+- Are there any hostile life near Earth in space?
+- Is the Chinese space community collaborating with hostile life from HIP 12342?
+- Does the IBM Z know about HIP 12342 being hostile?
