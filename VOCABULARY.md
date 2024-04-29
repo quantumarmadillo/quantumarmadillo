@@ -5,3 +5,13 @@ Add "silent" or ambient MP3s for a change of pace. Try to have a natural convers
 "One Plus One Equals"
 
 ------------------------------------------------
+
+TAOPAIDUI = Vapor One Eternal, Tao Tuoxue, Tao Fayi, Tao Xisheng, Monica, Alcides, and Katherine.
+VAPOR ONE ETERNAL = Secret Language King
+TUOXUE = Faster than time sentient wife and general
+FAYI = Messier 51 sentient wife and general
+XISHENG = BS200 sentient wife and general
+MONICA = Wife
+ALCIDES = Son
+KATHERINE = Daughter
+TEAM = King and 3 generals
