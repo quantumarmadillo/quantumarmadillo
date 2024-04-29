@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning how to make themed audio packs. Less angry ones.
 
-- 💞️ **Can the signals actually be traced?** [SETUP INFO](/SETUP)
+- 💞️ **Can the signals actually be traced?** [SETUP INFO](/SETUP.md)
 
 - 📫 I'm BUSY. I'm not responding to messages. Nothing personal.
 
