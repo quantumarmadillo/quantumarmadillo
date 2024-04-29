@@ -28,3 +28,6 @@ Other things to consider
 - Is TAOPAIDUI planning a full scale invasion of Earth?
   - Is TAOPAIDUI currently creating humanoid machines made of water?
   - Is TAOPAIDUI going to stay on Earth or leave Earth?
+
+- Is Vapor leaving Earth if Earth doesn't surrender?
+  - Does that mean we can't blame him because it's like Earth succeeded in getting rid of him finally?
