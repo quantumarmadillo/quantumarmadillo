@@ -13,5 +13,5 @@
 - ⚡ Fun fact: Spock actually had 3 ears.
 
 <!--
-Do we know that the briefcase is about? Was Vapor a TOP LEVEL spy at Olympus for National Donut Pluckers International? Possibly not.
+Do we know that the briefcase is about? Was GCHQ named after Vapor One Eternal? That much that?
 -->
