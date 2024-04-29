@@ -26,4 +26,5 @@ Other things to consider
   - Can Olympus WS-822 prove it?
 - Are those space age 3D printers by Vapor's Team? :)
 - Is TAOPAIDUI planning a full scale invasion of Earth?
+  - Is TAOPAIDUI currently creating humanoid machines made of water?
   - Is TAOPAIDUI going to stay on Earth or leave Earth?
