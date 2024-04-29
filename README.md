@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning how to make themed audio packs. Less angry ones.
 
-- 💞️ **I thought it'd be nice to let the world know that if they get an Olympus WS-821, WS-822, or WS-823 and WITHOUT modifying it, adding 198 folders to the MUSIC folder, each folder with 200 MP3's. Like a soundboard library in ANY LANGUAGE. SETTINGS >> PLAY MODE >> MUSIC to RANGE ALL, REPEAT ON, RANDOM ON. It's psychic and FAST!** [SETUP INFO](/SETUP)
+- 💞️ ** Can the signals actually be traced? ** [SETUP INFO](/SETUP)
 
 - 📫 I'm BUSY. I'm not responding to messages. Nothing personal.
 
