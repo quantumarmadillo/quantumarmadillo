@@ -11,7 +11,7 @@ Things you can talk about
 - Encryption
 - Medicine
 
-Listen while browsing the web, watching movies, Youtube, or foot traffic, whatever.
+Listen while browsing the web, watching movies, Youtube, or foot traffic, Wikipedia, etc. Kinda like a Pictionary treasure hunt. Draw in your journal. It can see.
 
 Other things to consider
 - Is Vapor ACTUALLY surrounding this universe?
