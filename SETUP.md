@@ -3,7 +3,7 @@ SETUP for Olympus WS-821, WS-822, or WS-823
 1. Create MUSIC folder on your computer.
 2. Add 198 folders into MUSIC folder. [because of memory limits]
    - Up to 200 MP3s in each folder.
-   - Any language.
+   - **Any language.**
    - You can also add 200 MP3s to the MUSIC folder itself.
    - Keep MP3s less than 15 seconds each.
  3. Copy MUSIC folder from computer onto your Olympus.
