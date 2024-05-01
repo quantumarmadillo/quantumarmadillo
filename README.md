@@ -12,6 +12,8 @@
 
 - ⚡ Fun fact: Spock actually had 3 ears.
 
+- 💼 I have a wishlist for random things. We'll keep it fun. [Nothing important.](https://www.amazon.com/hz/wishlist/ls/L4GP9BOER6NU?ref_=wl_share)
+
 ![Olympus WS-822](https://github.com/quantumarmadillo/quantumarmadillo/blob/main/Olympus%20WS-822.jpg)
 
 <!--
