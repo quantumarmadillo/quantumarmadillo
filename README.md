@@ -6,7 +6,7 @@
 
 - 💞️ **Can the signals actually be traced?** [SETUP INFO](/SETUP.md)
 
-- 📫 I'm BUSY. I'm not responding to messages. Nothing personal.
+- 📫 I'm BUSY. I'm not responding to messages. Nothing personal. Just too many trolls. So, consider why the current state of our development is like it is.
 
 - 😄 Pronouns: Whatever. Be clever.
 
