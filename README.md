@@ -2,6 +2,12 @@
 
 - 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off... ...And they all work for Vapor.
   
+- 🤫 Like laughs?
+  - [Telepath a joke?](https://dadjokegenerator.com/)
+  - [How about another?](https://www.cnn.com/interactive/2019/06/us/dad-joke-generator-trnd/)
+  - [How about a wallet?](https://randomwordgenerator.com/)
+  - [Like extra spicy?](https://passwords-generator.org/)
+
 - 👀 I like looking at different things to examine patterns. Things like Chinese characters, source code, time cycles, etc.
 
 - 🌱 I’m currently learning how to make themed audio packs. Less angry ones.
