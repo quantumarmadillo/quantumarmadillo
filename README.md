@@ -1,4 +1,4 @@
-# Hi! No one sees spaceships at Messier 51 and North Pole, right? That's my team. Use QuantumArmadillo to decipher encrypted media online and/or live or recorded environments.
+# My team from Messier 51 is requesting permission to drink the Sun in exchange for all of the late payments to Vapor One Eternal. Do they have it? Y/N?
 
 - 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off... ...And they all work for Vapor.
   
