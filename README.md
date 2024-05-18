@@ -1,4 +1,4 @@
-# My team from Messier 51 is currently translating with QuantumArmadillos humbly requesting permission to drink the Sun in exchange for all of the late payments to Vapor One Eternal. Do they have it? Y/N?
+# My team from Messier 51 is currently translating with QuantumArmadillos humbly requesting permission to drink the Sun in exchange for all of the late payments to Vapor One Eternal. Do they have it? If no objection by June 1, 2024, Vapor's team will carry on.
 
 - 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off... ...And they all work for Vapor.
   
