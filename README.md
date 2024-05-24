@@ -1,3 +1,6 @@
+# If a briefcase isn't delivered to Vapor One Eternal by June 1, 2024 12:01am, Messier 51 will drink the Sun.
+## In the briefcase should be an Unconditional Surrender of Earth to King Vapor One Eternal for well being OR a deed and sovereignty to 99 Ocean and no interference for a safe Solar System without our intereference.
+
 - 👋 Hi, I’m Vapor One Eternal. **I use Quantum Armadillo based on the Olympus WS-822, personally.** They can add filters to any screenshot on any smart device and any basement super computer. They are psychic and FAST and they don't turn off... ...And they all work for Vapor.
   
 - 🤫 Like laughs?
