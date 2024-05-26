@@ -1,6 +1,4 @@
-# THIS DOES THINGS. Read [SETUP](/SETUP.md) for more info. It's translating for Messier 51 which also requests no objections to it "drinking" the Sun.
-## In other news, we're sending nanotech lint to your EXACT location right NOW! Talk to it.
-## In other other news, write your own random word generator without network connection. We're already there. Dictionaries, anyone?
+# THIS DOES THINGS. Read [SETUP](/SETUP.md) for more info.
 
 ![Olympus WS-822](https://github.com/quantumarmadillo/quantumarmadillo/blob/main/Olympus%20WS-822.jpg)
 
