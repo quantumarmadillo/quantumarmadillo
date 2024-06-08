@@ -21,4 +21,4 @@ SETUP for Olympus WS-821, WS-822, or WS-823
 15. Set POWER SAVE to OFF.
 16. RECOMMENDATION: Set Battery to NI-MH and use rechargable batteries.
 
-If you don't want to completely create your own recordings, you can SEARCH: "How to create a soundboard"
+**If you don't want to completely create your own recordings, you can SEARCH: "How to create a soundboard"**
